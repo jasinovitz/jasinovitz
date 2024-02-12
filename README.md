@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jasinovitz
+- 👀 I’m interested in Jaszczur's videos
+- 😄 Pronouns: Pie/Cki
